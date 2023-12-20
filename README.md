@@ -1,0 +1,1 @@
+For websites having pages
